@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @m-ioao
-- 👀 There are plenty of things i hate, but i don't see that it matters, considering there is almost nothing i do like.
-- 📫 It seems pointless to talk about "dreams" ... That's just a word... but what i do have is determination.
-I plan to restore my clan. And there's someone i have sworn ...to kill.
+- 👋 Saluton, mi estas @m-ioao
+- 👀 Estas multaj aferoj, kiujn mi malamas, sed mi ne vidas, ke ĝi gravas, konsiderante, ke preskaŭ nenio mi ŝatas.
+- 📫 Ŝajnas sencela paroli pri « sonĝoj »... Tio estas nur vorto... sed kion mi ja havas estas persistemo.
+Mi planas restarigi mian klanon. Kaj estas iu, kiun mi ĵuris ... mortigi.
 
 
